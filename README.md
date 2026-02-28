@@ -1,2 +1,5 @@
-# Lakshya
-My personal repository
+# Hellwo 
+# Lakshya here
+ 
+Looking forward to learn improve and repeat 
+
